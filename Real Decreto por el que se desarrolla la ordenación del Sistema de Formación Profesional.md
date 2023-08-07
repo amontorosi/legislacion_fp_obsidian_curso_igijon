@@ -1,0 +1,6 @@
+#realDecreto #rd_659_2023 #ordenación #fp 
+
+### Real Decreto 659/2023, de 18 de julio, por el que se desarrolla la ordenación del Sistema de Formación Profesional
+> La Ley Orgánica 3/2022, de 31 de marzo, de ordenación e integración de la Formación Profesional concreta el compromiso asumido por España de modernización de nuestro país, facilitando la cualificación, la empleabilidad y, en consecuencia, la generación de riqueza. Para canalizar todas las expectativas, la Ley Orgánica requiere ser desarrollada, dando cobertura reglamentaria a la concreción de la flexibilización y accesibilidad del sistema planteadas, para que las administraciones responsables del desarrollo de las políticas en materia de Formación Profesional y su gestión desde cada comunidad autónoma trabajen conjuntamente, garantizando una oferta suficiente y adecuada de Formación Profesional, tanto para estudiantes como para personas trabajadoras, en todos y cada uno de los Grados previstos en el sistema, permitiendo el establecimiento de itinerarios formativos, que les acompañen, desde antes de acabar su escolaridad obligatoria y a lo largo de su vida laboral, y que concluya en la generalización de una nueva cultura del aprendizaje.
+
+- [Real Decreto 659/2023, de 18 de julio](https://boe.es/boe/dias/2023/07/22/pdfs/BOE-A-2023-16889.pdf)
